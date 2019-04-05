@@ -7,7 +7,7 @@ permalink: /about/
 
 ## Hei!
 
-<img border="0" href="https://www.flickr.com/photos/halinakema/47491130592/in/dateposted/" src="https://live.staticflickr.com/7863/47491130592_502d411b8e_c.jpg">
+<img border="0" src="https://live.staticflickr.com/8537/29619836441_0ffaed87e5_c.jpg">
 
 
 Anna (33)- moved from Poland to Norway when I was 3 and the Berlin wall fell.
