@@ -21,12 +21,15 @@ I have a slight addiction to perfumes, art supplies and that perfect cup of cort
 
 
 Through e-mail
+
 [anna.miczka@gmail.com](mailto:anna.miczka@gmail.com?Subject=Hei%20) 
 
 On instagram
+
 [@annamiczka](https://www.instagram.com/annamiczka/) 
 
 My photos 
+
 [On Flickr](https://www.flickr.com/people/halinakema/) 
 
 
