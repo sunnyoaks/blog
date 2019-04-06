@@ -12,31 +12,28 @@ permalink: /about/
 
 Anna (33)- moved from Poland to Norway when I was 3 and the Berlin wall fell.
 
-Got a restless in my twenties, moved around. Lived in St. Petersburg, Lisbon and New York. Still loves being a country girl. The smell of forests, rose gardens and cut wood makes me feel at home. I blogged for a while over [here](https://librasmoments.blogspot.com/).
+Got a restless when I was in college, so I moved around a little. I lived in St. Petersburg, Lisbon and New York. I am still very much a country girl at heart. The smell of forests, rose gardens and cut wood makes me feel at home. I blogged for a while over [here](https://librasmoments.blogspot.com/), but so many things happened in my life that I decided to start a new space here. 
 
-I have a slight addiction to perfumes, art supplies and that perfect cup of cortado in the morning. Other than that, I am constantly trying to get better at conciously spending my time, money and attention. Sometimes with varying success – but hey. We are all just people!
+Now I live and work as a designer in Oslo. I have a slight addiction to perfumes, art supplies and that perfect cup of cortado in the morning. Other than that, I am constantly trying to get better at conciously spending my time, money and attention. Sometimes with varying success – but hey. We are all just people!
 
 
 ##### Say hello 
 
 
-Through e-mail
+Through e-mail: [anna.miczka@gmail.com](mailto:anna.miczka@gmail.com?Subject=Hei%20) 
 
-[anna.miczka@gmail.com](mailto:anna.miczka@gmail.com?Subject=Hei%20) 
+On instagram: [@annamiczka](https://www.instagram.com/annamiczka/) 
 
-On instagram
-
-[@annamiczka](https://www.instagram.com/annamiczka/) 
-
-My photos 
-
-[On Flickr](https://www.flickr.com/people/halinakema/) 
+My photos [on Flickr](https://www.flickr.com/people/halinakema/) 
 
 
-##### My bloglist 2019
+
+##### My bloglist 2019 - in no particular order
 
 
 [The Glamorous Librarian](http://glambibliotekaren.blogspot.com/) (Norwegian)
+
+[Et katteliv](http://www.etkatteliv.no/) (Norwegian)
 
 [To be Authentic](http://tobeauthentic-aga.blogspot.com/) (Polish)
 
