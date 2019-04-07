@@ -12,10 +12,7 @@ What better way relax in the spring sun than to discover blooming treasures in t
 
 The park is about to be covered by fields of spring flowers.
 
-<img border="0" src="https://live.staticflickr.com/7820/32614878547_b0711f91e3_c.jpg">
-
-
-
+<img border="0" src="https://live.staticflickr.com/7820/32614878547_af62a31716_h.jpg">
 <img border="0" src="https://live.staticflickr.com/7890/32614875427_34ff416b5d_c.jpg">
 _The greenhouse has a jungle with exotic plants that bloom all year. It is nice to come here in February too. Just to get a little warm._
 
