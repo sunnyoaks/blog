@@ -17,12 +17,11 @@ The park is about to be covered by fields of spring flowers.
 _The greenhouse has a jungle with exotic plants that bloom all year. It is nice to come here in February too. Just to get a little warm._
 
 
-<img border="0" src="https://live.staticflickr.com/7863/46641889835_a6bbcf37c3_h.jpg">
+<img border="0" src="https://live.staticflickr.com/7863/46641889835_67e2b9018d_h.jpg">
 _These tiny orchids are just adorable._
 
 
-<img border="0" src="https://live.staticflickr.com/7832/47557507061_b17005a460_h.jpg">
-
+<img border="0" src="https://live.staticflickr.com/7832/47557507061_b17005a460_b.jpg">
 
 
  And the best thing: there is no entrance fee! Happy Sunday ^^
