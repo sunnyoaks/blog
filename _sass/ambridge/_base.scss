@@ -128,8 +128,12 @@ blockquote, blockquote p {
 
 img {
   display: block;
-  margin: 0 auto 0.4rem auto;
+  margin: 0 auto 0.4rem 0;
   max-width: 100%;
+  
+}
+
+.post img {
   margin-left: auto;
   margin-right: auto;
 }
