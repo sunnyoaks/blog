@@ -21,7 +21,7 @@ And isn't it wonderful how sometimes the simplest things can put a smile on your
 
 ##### March 18th 2018
 
-* I moved the last stuff from my old apartment with the help of Ingvild, my childhood friend. What a relief it is to finally be completely done with the move. And what I relief it was to know I was never alone in this process.
+* I moved the last things from my old apartment with the help of Ingvild. What a relief it is to finally be completely done with the move. And what I relief it was to know I was never alone in this process.
 * I followed my mom’s advice and made myself a nice hot chocolate. But a healthy version with almond milk and honey. 
 * The weather has shifted, and it feels like spring is really here.
 
