@@ -15,7 +15,7 @@ Within the next eight months my first Moleskin was packed. On most days I had at
 
 My “Good things” journal helped me searching positive experiences, but also helped me stay positive during difficult times. Practicing it on those days and overcoming difficult experiences matters immensely. 
 
-And isn't it wonderful how sometimes the simplest things can put a smile on your face. Here are some spring highlights from my journal:
+And isn't it wonderful how sometimes the simplest things can put a smile on your face? Here are some spring highlights from my journal:
 
 <img border="0" src="https://live.staticflickr.com/7842/46642847765_822a42e647_c.jpg">
 
