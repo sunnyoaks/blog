@@ -21,8 +21,6 @@ Through e-mail: [anna.miczka@gmail.com](mailto:anna.miczka@gmail.com?Subject=Hei
 
 On instagram: [@annamiczka](https://www.instagram.com/annamiczka/) 
 
-My photos [on Flickr](https://www.flickr.com/people/halinakema/) 
-
 
 
 ##### My bloglist 2019 - in no particular order
