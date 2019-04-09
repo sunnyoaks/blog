@@ -33,8 +33,8 @@ And isn't it wonderful how sometimes the simplest things can put a smile on your
 ##### April 28th 2018
 
 * How nice it is to start a new project at work. It feels so fresh and motivating.
-* I visited a friend in the evening and chatted about absolutely everything.  
-* I had the loveliest long walk from my friend back home. The sky was pink and blue, and clouds were gorgeous, almost foggy formations. 
+* I visited an old friend in the evening and we chatted about absolutely everything.  
+* I had the loveliest long walk back home. The sky was pink and blue, and the clouds were gorgeous, almost foggy formations. 
 
 If you want to know more about how to keep a gratitude journal, I can recommend [this short article](https://ggia.berkeley.edu/practice/three-good-things). 
 
