@@ -9,7 +9,7 @@ It feels a little surreal that I am soon to finish my third gratitude journal. K
 
 <img border="0" src="https://live.staticflickr.com/7872/46657260875_fb73e5989b_c.jpg">
 
-I started my first journal the summer of 2017. I was ready to put some serious effort into becoming and staying happy. I got myself an empty Moleskine (just to get a little fancy) and  named it “Gode ting” in Norwegian - “Good Things”. Since then I  sit down on my bed (almost) every evening, and try to write down at least three good experiences that have happened during the day. At first it felt almost as brainwashing myself, and every effort to find good things felt forced.  
+I started my first journal the summer of 2017. I was ready to put some serious effort into becoming and staying happy. I got myself an empty Moleskine, just to get a little fancy, and  named it “Gode ting” in Norwegian - “Good Things”. Since then I  sit down on my bed (almost) every evening, and try to write down at least three good experiences that have happened during the day. At first it felt almost as brainwashing myself, and every effort to find good things felt forced.  
 
 Within the next eight months my first Moleskin was packed. On most days I had at least 5-7 memorable experiences to note, everything from the smallest impression, to big milestones at work or personally. Now, being on my third journal, it is rewarding to flip through the earlier ones and remind myself of so many nice things. I think that keeping a gratitude journal  must have been the best thing I have ever done for myself. 
 
