@@ -1,4 +1,3 @@
-My “Good things” journal
 ---
 layout: post
 title: "My “Good things” journal"
