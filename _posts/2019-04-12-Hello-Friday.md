@@ -17,4 +17,4 @@ The guy that made a remark towards me was not Norwegian.  I am pretty confident 
 
 Just a little reminder to support each other! 
 
-And for those of you who are starting a easter vacation: have a really wonderful one! I am heading for my mother’s house on the countryside, taking almost the entire week off and I am looking forward to see some tulips and daffodils. 
+And for those of you who are starting a easter vacation: have a really wonderful one! I am heading for my mother’s house on the countryside, taking almost the entire week off work and I am hoping to see tulips and daffodils.
