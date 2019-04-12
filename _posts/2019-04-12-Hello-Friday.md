@@ -5,7 +5,7 @@ author: "Anna"
 tag: "friday"
 ---
 
-<img border="0" src="https://live.staticflickr.com/7830/47591952511_e0188c0df0_b.jpg">
+<img border="0" src="https://live.staticflickr.com/7830/47591952511_e0188c0df0_c.jpg">
 
 What a tough week this has been.
 
